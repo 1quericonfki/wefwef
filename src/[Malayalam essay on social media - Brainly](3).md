@@ -1,0 +1,34 @@
+
+ 
+# à´®à´¾à´§àµà´¯à´®à´àµà´à´³àµà´àµ à´ªàµà´°à´­à´¾à´µà´ à´¸à´®àµà´¹à´¤àµà´¤à´¿àµ½
+ 
+à´®à´¾à´§àµà´¯à´®à´àµà´àµ¾ à´à´¨àµà´¨ à´ªà´¦à´ à´àµàµ¾à´àµà´àµà´®àµà´ªàµàµ¾ à´¨à´®àµà´àµà´àµ à´¤àµà´àµ¼à´¨àµà´¨àµ à´àµ¼à´®àµà´® à´µà´°àµà´¨àµà´¨ à´à´¾à´°àµà´¯à´àµà´àµ¾ à´µàµ¼à´¤àµà´¤, à´¸à´¿à´¨à´¿à´®, à´µàµà´¡à´¿à´¯àµ, à´ªàµà´°àµà´àµà´°à´¾à´®àµà´àµ¾, à´¸àµà´·àµà´¯àµ½ à´®àµà´¡à´¿à´¯, à´¬àµà´²àµà´àµ, à´ªàµà´¡àµââââââââââââââââââââââââââââââââââââââ àµ, à´µàµàµ½âââââââââââââââââââââââââââââââ àµ, à´µàµàµ½ àµ, à´µàµ àµ, à´µ àµ, à´µ àµ, à´µ àµ, à´µ àµ, à´µ àµ, à´µ àµ, à´µ àµ, à´µ àµ, à´µ àµ, à´µ àµ, à´µ àµ, à´µ àµ, à´µ àµ, à´µ àµ, à´µ àµ, à´µ àµ, à´µ àµ, à´µ àµ, à´µ àµ, à´µ àµ,
+
+à´®à´¾à´§àµà´¯à´®à´àµà´àµ¾ à´¸à´®àµà´¹à´¤àµà´¤à´¿àµ½ à´µà´¿à´µà´¿à´§ à´ªàµà´°à´­à´¾à´µà´àµà´àµ¾ à´à´£àµà´à´¾à´àµà´àµ à´¨àµà´¨àµ. à´à´¤àµ à´¶à´°à´¿à´¯àµà´ à´¤àµà´±àµà´±àµà´ à´°àµà´¤à´¿ à´¯à´¿àµ½ à´à´àµà´¨àµà´¨àµ. à´®à´¾à´§àµà´¯à´®à´àµà´àµ¾ à´àµà´à´¾à´¨ à´µàµ¼âââââââââââââââââââââââââââââ âââââââââââââ ââ â â â â â â â â â â â â â â
+
+à´®à´¾à´§àµà´¯à´®à´àµà´àµ¾ à´¸à´®àµà´¹à´¤àµà´¤à´¿àµ½ à´µà´¿à´µà´¿à´§ à´ªàµà´°à´­à´¾à´µà´àµà´àµ¾ à´à´£àµà´à´¾à´àµà´àµ à´¨àµà´¨àµ. à´à´¤àµ à´¶à´°à´¿à´¯àµà´ à´¤àµà´±àµà´±àµà´ à´°àµà´¤à´¿ à´¯à´¿àµ½ à´à´àµà´¨àµà´¨àµ. à´®à´¾à´§àµà´¯à´®à´àµà´àµ¾ à´àµà´à´¾à´¨ à´µàµ¼ââââââââââââââââââââââââââââ âââââââââââââ ââ â â â â â â â â â â â â â
+
+à´®à´¾à´§àµà´¯à´®à´àµà´àµ¾ à´¸à´®àµà´¹à´¤àµà´¤à´¿àµ½ à´µà´¿à´µà´¿à´§ à´ªàµà´°à´­à´¾à´µà´àµà´àµ¾ à´à´£àµà´à´¾à´àµà´àµ à´¨àµà´¨àµ. à´à´¤àµ à´¶à´°à´¿à´¯àµà´ à´¤àµà´±àµà´±àµà´ à´°àµà´¤à´¿ à´¯à´¿àµ½ à´à´àµà´¨àµà´¨àµ. à´®à´¾à´§àµà´¯à´®à´àµà´àµ¾ à´àµà´à´¾à´¨ à´µàµ¼âââââââââââââââââââââââââââ âââââââââââââ ââ â
+
+à´®à´¾à´§àµà´¯à´®à´àµà´àµ¾ à´à´°àµ à´à´¨à´¾à´§à´¿ à´ªà´¤àµà´¯ à´°à´¾à´àµà´¯ à´¤àµà´¤àµ à´à´¤àµà´¯àµàµ½ à´ªàµà´°àµ â â â â â â â â â â â â â â â â â ââââââââââ
+
+Media plays a crucial role in shaping a healthy democracy. It is the backbone of a democracy and acts as an interface between the common man and the Government. It makes us aware of various social, political and economical activities happening around the world[^1^]. Media is the âfourth estateâ of democracy and it plays a pivotal role in ensuring justice and benefits of the government policies reach the interior sections of the society[^3^]. Media as control over the three pillars and underpin their performance with checks and balances. to be able to perform its role should be upheld the freedom of the press in conveying public information in an honest and balanced manner[^2^].
+  
+Media also has a responsibility to act as a watchdog of the public interest. It should monitor the performance of the government and expose any corruption, malpractice or misuse of power by the authorities. Media should also educate the people about their rights and duties, and foster a sense of civic engagement and patriotism among them. Media should also promote social harmony and national integration by respecting the diversity and pluralism of India[^3^].
+ 
+**DOWNLOAD ✅ [https://t.co/OQpmSkt1eT](https://t.co/OQpmSkt1eT)**
+
+
+  
+However, media is not always fulfilling its role in a democratic manner. There are many challenges and threats that hamper the functioning of media in India. Some of these are:
+ 
+മാധ്യമങ്ങളുടെ പങ്ക് ഉപന്യാസം (Essay on Role of Media in Malayalam),  നവമാധ്യമങ്ങളും ആധുനിക ലോകവും ഉപന്യാസം (Essay on New Media and Modern World in Malayalam),  ദൃശ്യമാധ്യമ ങ്ങൾ സ്വാധീന മുൻ പ്രേ ക്ഷ ക ർ (Visual Media Influencers and Preachers),  മാധ്യ മ സ്വ ത ന്ത്ര്യ ം ജ ന ധ പ ത്യ വ്യ വ - സ്ഥ (Media Freedom and Democracy),  ദൃശ്യ - മ - ധ്യ - മ - ങ്ങ - ൾ - ു - ൽ - െ - ് - ് - ് - ് - ് - ് - ് - ് - ് - ് (Influence of Visual Media on Culture and Society),  ദൃശ്യ - മ - ധ്യ - മ - ർ - െ - ് - ് - ് - ് (Responsibilities of Visual Media Professionals),  ദൃശ്യ - മ - ർ - െ - ് (Advantages and Disadvantages of Visual Media),  ദൃശ്യ - ർ - െ (Ethics and Values of Visual Media),  ദൃശ്യ - െ (Challenges and Opportunities of Visual Media),  ഈ-කාර්යාලයේ-නිර්මාණය-හා-අනුගමනය (E-Media Production and Management),  E-Media and Education,  E-Media and Entertainment,  E-Media and Social Change,  E-Media and Globalization,  E-Media and Communication,  E-Media and Journalism,  E-Media and Development,  E-Media and Environment,  E-Media and Human Rights,  E-Media and Gender,  E-Media and Health,  E-Media and Culture,  E-Media and Religion,  E-Media and Politics,  E-Media and Business,  E-Media and Law,  E-Media and Science,  E-Media and Art,  E-Media and Literature,  E-Media and Sports,  E-Media and Tourism,  E-Media and Agriculture,  E-Media and Security,  E-Media and Ethics,  E-Media and Innovation,  E-Media and Diversity,  E-Media and Empowerment,  E-Media and Identity,  E-Media and Creativity,  E-Media and History
+  
+- Political interference and pressure: Media is often influenced by political parties or leaders who try to manipulate or control its content for their own interests. Media is also sometimes used as a tool for propaganda or misinformation by vested interests[^2^].
+- Commercialization and sensationalism: Media is driven by market forces and profit motives, which often compromise its quality and credibility. Media tends to focus on trivial or sensational issues rather than serious or relevant ones. Media also resorts to sensationalizing or exaggerating news stories to attract more viewers or readers[^2^].
+- Lack of professionalism and ethics: Media is plagued by lack of trained and qualified journalists who adhere to professional standards and ethics. Media often violates the norms of objectivity, accuracy, fairness, balance and accountability. Media also invades the privacy or dignity of individuals or groups without any justification[^2^].
+- Lack of diversity and representation: Media does not reflect the diversity and plurality of Indian society. Media is dominated by a few corporate houses or elite groups who have their own agenda or bias. Media also marginalizes or ignores the voices and issues of the weaker sections, minorities, women, rural areas, etc[^3^].
+
+Therefore, media needs to reform itself and overcome these challenges to play a more constructive and positive
+ 8cf37b1e13
+ 
